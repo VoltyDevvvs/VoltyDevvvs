@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VoltyDevvvs
+- 👀 Coding has always been my passion, i tried learning lua but i was too lazy! I decided to end the procrastination, and here I am!
+- 🌱 I’m currently learning c++ as my first ever programming language from 0
+- 📫 You can reach me via discord! Im open for any dms! @voltdms
+- 😄 Pronouns: he / Him ofc!
